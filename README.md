@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with friend.
 - 💬 Ask me about anything.
 - 📫 How to reach me: 대구과학고등학교 1학년 1반 박선율.
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: happy.
+- ⚡ Fun fact: I'm handsome.
 -->
