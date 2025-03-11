@@ -1,4 +1,5 @@
 ## Hi there 👋
+대구과학고등학교 1학년 1반 9번 박선율
 
 <!--
 **seonyul09/seonyul09** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
